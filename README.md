@@ -1,1 +1,1 @@
-# mesnet
+# mesnet Coins
